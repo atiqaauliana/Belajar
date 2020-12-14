@@ -1,2 +1,2 @@
 # Belajar
-hal ysng saya coba-coba
+hal yang saya coba-coba
